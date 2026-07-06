@@ -1,4 +1,4 @@
-# 
+# Ultime Yi-Lightning plugins. Avec formation de modèles personnalisés et synchronisation cloud — optimisé pour des performances et une efficacité maximales.
 
 
 
